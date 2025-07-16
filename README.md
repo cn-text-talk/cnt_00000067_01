@@ -16,4 +16,7 @@
 <br>$\textsf{\color{red}{我看[你的传销组织行为]反对大法，}}$
 <br>$\textsf{\color{red}{[将要在法正人间,被大法李洪志销毁掉，}}$
 <br>$\textsf{\color{red}{[[你]都[不配当][你的传销组织][老板]了吧。}}$
+<br>
+<br>$\textsf{\color{red}{我看[你明知故犯,行为故意]反对大法真善忍，}}$
+<br>$\textsf{\color{red}{我看[你自己故意]要被李洪志销毁掉。}}$
 </h3>
