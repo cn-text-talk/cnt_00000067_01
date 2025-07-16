@@ -19,4 +19,6 @@
 <br>
 <br>$\textsf{\color{red}{我看[你明知故犯,行为故意]反对大法真善忍，}}$
 <br>$\textsf{\color{red}{我看[你自己故意]要被李洪志销毁掉。}}$
+<br>
+<br>$\textsf{\color{red}{[你故意]被李洪志销毁。}}$
 </h3>
