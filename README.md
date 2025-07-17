@@ -11,7 +11,7 @@
 <br>我看[你的行为]反对大法，
 <br>$\textsf{\color{red}{我看[你的性行为][是仇恨杀人兴奋],而[不是爱情]，是反对大法,}}$
 <br>$\textsf{\color{red}{将要在法正人间,被大法李洪志销毁掉，}}$
-<br>$\textsf{\color{red}{[你]连[你的名字]都[配不起]了吧。}}$
+<br>$\textsf{\color{red}{[你]连[你的名字]都[配不起]。}}$
 <br>
 <br>$\textsf{\color{red}{我看[你的传销组织行为]反对大法，}}$
 <br>$\textsf{\color{red}{将要在法正人间,被大法李洪志销毁掉，}}$
